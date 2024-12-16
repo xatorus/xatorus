@@ -1,1 +1,1 @@
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![](https://fontmeme.com/permalink/241206/0d39e8f63152ff852b00f74968a35f34.png)](https://rentry.co/xatoru)ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  ![](https://i.pinimg.com/736x/6c/f7/42/6cf7423ac92c179fba070d4cf0d36335.jpg) 
+
